@@ -16,7 +16,7 @@ Krótki opis stanowiska:
  - Badanie konkurencji 
  - Testowanie strony internetowej
 
-**Pomoc budowlana P.Bartii Dania**
+**Pomoc budowlana P.Bartii Dania(10.2018 – 08.2019)**
 
  - koordynacja i ustalenie robót z kierownictwem oraz klientem w języku angielskim
  - kontrola nad powierzonym mieniem 
